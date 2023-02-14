@@ -1,16 +1,15 @@
-### Hi there 👋
+🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸
 
-<!--
-**EmillyPrieto/EmillyPrieto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Olá meu nome é Emilly 
 
-Here are some ideas to get you started:
+- 🌸 Estou fazendo técnico em Desenvolvimento de Sistemas 
+- 🌸 Atualmente estou aprendendo Programação Mobile e Front-end
+- 🌸 Estou procurando colaborar com estágios dessas áreas
+- 🌸 Estou procurando ajuda com Mobile e Front-end
+- 🌸 Pronomes: Ela/Dela
+- 🌸 Curiosidade: a alguns meses eu nem tinha interesse em Sistemas 
+- ✉️ Como chegar até mim:
+- ✉️ emillyemanueleprieto@gmail.com (E-mail)
+- ✉️ @eemilly_prieto (Instagram)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸💮🌸
